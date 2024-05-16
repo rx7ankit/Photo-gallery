@@ -1,1 +1,0 @@
-Skumar Photo Gallery
